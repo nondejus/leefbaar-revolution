@@ -1,2 +1,7 @@
 # de-afschaffings-van-nederlandse-burgers
+
 2002-2022
+
+
+# koninkrijk deer nederlanden
+https://nl.wikipedia.org/wiki/Koninkrijk_der_Nederlanden
